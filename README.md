@@ -1,26 +1,12 @@
-![image](https://github.com/user-attachments/assets/f376a7d4-19ac-47ca-ba5d-74667161288b)
+<p align="center">
+<img width="462" height="386" alt="Image" src="https://github.com/user-attachments/assets/6a216665-1ca6-4e0b-94b2-0f3f5c510677" />
+</p>
+<p align="center">
+<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/da4461b5-9324-4c0a-bb23-f420d77c1e5b" /> 𝓶ika <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6f6fbe62-5d89-4c0e-895f-9ade4fd4e658" />   shi <img width="15" height="15" alt="Image" src="https://github.com/user-attachments/assets/4fda1c7d-7641-4095-8450-a23f25d23dac" /> 𝓱ir  。16 <img width="15" height="15" alt="Image" src="https://github.com/user-attachments/assets/4ee8019f-45d2-4e63-9b05-4fb4bb1dd8ec" />
+</p>
 
-![image](https://github.com/user-attachments/assets/3fc8daba-c5fe-4eac-a3bd-566e17bff5ca) ![image](https://github.com/user-attachments/assets/88373a17-a569-4418-91a8-d51019e0e6f2) ![image](https://github.com/user-attachments/assets/8a84fea8-a8cf-4d6f-a59b-1903fafe29b4)
-![image](https://github.com/user-attachments/assets/cb709330-c5ed-499e-8175-73e9dc857c2c)
+                                    ![](https://komarev.com/ghpvc/?username=boothillkisser&color=ffffff&label=꒰ঌ♡ྀི໒꒱)
 
-![image](https://github.com/user-attachments/assets/1f2c3f55-55cb-4bd1-83fc-b6f39de729ce) ![image](https://github.com/user-attachments/assets/e3031a65-d04c-453c-a504-badd28fdd6fd) ![image](https://github.com/user-attachments/assets/6cdbcf6d-b617-46ab-8cf1-d7d6a744a45b)
-
-  ![image](https://github.com/user-attachments/assets/37130741-5229-4b0a-be64-e652596beaaf) ![image](https://github.com/user-attachments/assets/50178e38-7419-4afa-be6c-575e523674f1) ![image](https://github.com/user-attachments/assets/ec452f4a-f45f-4ba0-aa1a-f5e382c6908f)
-  
-![image](https://github.com/user-attachments/assets/696310f3-c03d-4d23-9105-76fd193fab97) ![image](https://github.com/user-attachments/assets/9a72e131-a078-4b9b-aa34-1d140c4cd832) ![image](https://github.com/user-attachments/assets/cbdaa98b-89a0-43d8-b9e6-149322fb61a1)
-
-![image](https://github.com/user-attachments/assets/ab36c96a-ba01-4363-96f0-7a707b0cf708)
-
-![image](https://github.com/user-attachments/assets/adda8ed9-169a-4076-9262-16883093e765) ![image](https://github.com/user-attachments/assets/8c33352c-9b3f-4683-824e-2726a54b1da7) ![image](https://github.com/user-attachments/assets/4889f63c-3126-49f8-9250-e5a919550478)
-
-
-
-
-
-
-
-
-
-
-
-
+<p align="center">
+<img width="200" height="50" alt="Image" src="https://github.com/user-attachments/assets/a5e34bd3-e12e-4ff0-8b6e-f8870d2f0b9f" />
+</p>
